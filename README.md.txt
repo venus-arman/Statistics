@@ -1,0 +1,1 @@
+This study addresses the statistical significance evaluation of the a category of women. Sets of different conditions have been considered. The data has been collected during regular interviews during six months.
